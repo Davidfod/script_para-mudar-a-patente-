@@ -1,1 +1,0 @@
-# script_para-mudar-a-patente-
